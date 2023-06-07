@@ -1,6 +1,6 @@
 # 速鹰666官网登录地址
 
-最新地址：[suying100.xyz](https://suying900.net/auth/register?code=V0Fy)
+最新地址：[suying900.net](https://suying900.net/auth/register?code=V0Fy)
 
 ## 速鹰666简介
 
