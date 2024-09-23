@@ -1,6 +1,6 @@
 # 速鹰666官网登录地址
 
-最新地址：[suying82.com](https://sy168.net/auth/register?code=V0Fy)
+最新地址：[suying82.com](https://suying159.xyz/auth/register?code=V0Fy)
 
 > 打不开多刷新几次
 
